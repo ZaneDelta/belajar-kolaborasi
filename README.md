@@ -3,6 +3,8 @@
 2. dua
 3. tiga
 4. empat
+5. TEMEPKKKKKKKKK
+6. JEMBODDDDDDDDDDD
 <br>
 <br>
 <br>
