@@ -1,1 +1,1 @@
-gat git gat git asu
+JUNA SUKA MAKAN BAKSO 
